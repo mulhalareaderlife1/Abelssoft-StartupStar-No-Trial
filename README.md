@@ -1,0 +1,1 @@
+# Abelssoft-StartupStar-No-Trial
